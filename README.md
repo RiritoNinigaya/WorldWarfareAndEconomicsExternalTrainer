@@ -1,0 +1,2 @@
+# WorldWarfareAndEconomicsExternalTrainer
+WorldWarfareAndEconomicsExternalTrainer by RiritoNinigaya
